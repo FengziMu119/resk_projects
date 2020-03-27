@@ -1,1 +1,0 @@
-# resk_projects
